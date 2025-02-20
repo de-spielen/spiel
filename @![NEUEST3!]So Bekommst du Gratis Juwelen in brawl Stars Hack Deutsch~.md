@@ -1,8 +1,8 @@
 # @![NEUEST3!]So Bekommst du Gratis Juwelen in brawl Stars Hack Deutsch~
 
-## [KLICKEN SIE HIER](https://agri-servicesagency.com/getmedia/13ee2aac-349a-450a-8b10-e7ae4f157d59/br4wlst4rs3s.html)
-## [KLICKEN SIE HIER](https://agri-servicesagency.com/getmedia/13ee2aac-349a-450a-8b10-e7ae4f157d59/br4wlst4rs3s.html)
-## [KLICKEN SIE HIER](https://agri-servicesagency.com/getmedia/13ee2aac-349a-450a-8b10-e7ae4f157d59/br4wlst4rs3s.html)
+## [KLICKEN SIE HIER](https://agri-servicesagency.com/getmedia/5b455e05-d1dd-4e11-9c69-a27173b82f06/br4wlstars.html)
+## [KLICKEN SIE HIER](https://agri-servicesagency.com/getmedia/5b455e05-d1dd-4e11-9c69-a27173b82f06/br4wlstars.html)
+## [KLICKEN SIE HIER](https://agri-servicesagency.com/getmedia/5b455e05-d1dd-4e11-9c69-a27173b82f06/br4wlstars.html)
 
 Kostenlose Juwelen für Brawl Stars findest du genau hier! Mit diesem Brawl Stars Hack kannst du dir innerhalb sehr kurzer Zeit, unendlich viele Juwelen generieren und hast 
 
